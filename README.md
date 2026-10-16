@@ -1,0 +1,2 @@
+# Amirrrrr
+TUGAS LOGIKA PEMROGRAMAN ya
